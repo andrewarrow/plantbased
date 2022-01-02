@@ -44,6 +44,8 @@ Yes, you can drive through [in-n-out](https://www.in-n-out.com/) a couple times 
 
 Try hunting! No really, watch the hunting clip above, you can still eat interesting meat with effort.
 
+But this isn't just about *your* health.
+
 # Eating meat is not obscene, collecting it at industry scales is
 This is not a us vs. them thing. I don't want to put in the hunting effort so I'm eating just plants for right now in my day to day.
 Doesn't mean I won't someday go hunting. I can still be a meat eater but go through years of city life with zero animal products in diet.
