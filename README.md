@@ -4,8 +4,6 @@ links about plants and eating them
 # about this repo
 Are you a human trying to eat less meat? Have you tried and failed over and over to be vegitarian or even vegan?
 
-It's so simple. 
-
 # Step 1
 Watch [www.seaspiracy.org](https://www.seaspiracy.org/) on Netflix.
 
