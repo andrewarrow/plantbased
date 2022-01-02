@@ -1,6 +1,17 @@
 # plantbased
 links about plants and eating them
 
+# about this repo
+Are you a human trying to eat less meat? Have you tried and failed over and over to be vegitarian or even vegan?
+
+It's so simple. 
+
+# Step 1
+Watch [www.seaspiracy.org/](https://www.seaspiracy.org/) on Netflix.
+
+# Step 2
+Reframe covid as the meat eater disease. Don't want to die from covid, re-watch seaspiracy and double your efforts.
+
 # links
 [nypost.com/2021/06/08/vegans-are-less-likely-to-get-severe-covid-study-says/](https://nypost.com/2021/06/08/vegans-are-less-likely-to-get-severe-covid-study-says/)
 
@@ -21,3 +32,12 @@ links about plants and eating them
 [www.dw.com/en/covid-19-vegetarians-vegans-get-less-sick/av-58147508](https://www.dw.com/en/covid-19-vegetarians-vegans-get-less-sick/av-58147508)
 
 [www.medicalnewstoday.com/articles/covid-and-veganism](https://www.medicalnewstoday.com/articles/covid-and-veganism)
+
+# Data doesn't lie
+Reframing as billions of meat eaters are going to die over the next few years is not a stretch. You could almost imagine mother nature purposely "manifesting" covid as a way to dramatically thin out the human population. And what humans would mother nature like to keep? The ones that watched seaspiracy and got it.
+
+# Hunting my own elk
+I think you'll be fine with mother nature if you hunt and kill yourself the meat you eat. Understanding seaspiracy means the "industry" scale of all humans getting easy meat. That's the problem. Not the special individual that wants to hunt some prey in the wild, bond with it, maybe even stare at it for hours while waiting for perfect shot, killing the animal that you've now bonded with yourself, getting the meat, all this work lets you earn that meat and you are still okay with the makers of seaspiracy I say. [Hunting](https://www.youtube.com/watch?v=j3iVpSUriSg)
+
+
+
